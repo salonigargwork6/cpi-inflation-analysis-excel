@@ -4,3 +4,5 @@
 • Identified Food &amp; Beverages as the highest inflation contributor.
 <br>
 • Evaluated fuel, transport &amp; healthcare inflation trends and economic shocks, with inflation peaking near 6.6% in 2022.
+<br>
+Author- Saloni Garg
